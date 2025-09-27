@@ -1,0 +1,1 @@
+This scientific expedition was performed in collaboration with the Durham University Expeditions Group (https://www.durham.ac.uk/study/scholarships/current-students/durham-university-expeditions-group/) and Auckland University of Technology.  
